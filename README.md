@@ -6,4 +6,6 @@ Awarded U.S. Top 3 Pledge Earner (https://www.youracclaim.com/badges/e660888b-82
 
 Quoted in Wake Forest Review here: http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/. 
 
-![IMG_0554](https://user-images.githubusercontent.com/19508013/111695103-f1e23780-87ef-11eb-89b3-b47df399521b.jpeg) 
+![IMG_0554](https://user-images.githubusercontent.com/19508013/111695103-f1e23780-87ef-11eb-89b3-b47df399521b.jpeg) ![IMG_0182](https://user-images.githubusercontent.com/19508013/111695367-3a99f080-87f0-11eb-9b61-2ca936eb318c.jpeg)
+
+

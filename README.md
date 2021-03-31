@@ -8,7 +8,7 @@ I am quoted in Wake Forest Review here: http://wakeforestreview.com/up-to-us-cam
 
 ![IMG_0554](https://user-images.githubusercontent.com/19508013/111695103-f1e23780-87ef-11eb-89b3-b47df399521b.jpeg) 
 
-<img width="652" alt="Screen Shot 2021-03-31 at 9 10 45 AM" src="https://user-images.githubusercontent.com/19508013/113176142-05829a80-9201-11eb-9ee9-7dd753f99a10.png">
+![IMG_1523](https://user-images.githubusercontent.com/19508013/113177014-efc1a500-9201-11eb-8389-9a99f8ecb9e8.jpeg)
 
 ![IMG_0182](https://user-images.githubusercontent.com/19508013/111695367-3a99f080-87f0-11eb-9b61-2ca936eb318c.jpeg)
 

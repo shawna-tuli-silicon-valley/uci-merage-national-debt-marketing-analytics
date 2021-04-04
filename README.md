@@ -12,4 +12,6 @@ I am quoted in Wake Forest Review here: http://wakeforestreview.com/up-to-us-cam
 
 ![IMG_0182](https://user-images.githubusercontent.com/19508013/111695367-3a99f080-87f0-11eb-9b61-2ca936eb318c.jpeg)
 
+![IMG_1550](https://user-images.githubusercontent.com/19508013/113496240-844f3000-94ac-11eb-8621-0e7bd581b106.jpeg)
+
 

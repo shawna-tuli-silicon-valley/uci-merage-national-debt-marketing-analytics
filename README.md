@@ -2,7 +2,7 @@
 
 Associated with Paul Merage School of Business and Alpha Kappa Psi at the University of California, Irvine. 
 
-I was UCI's Marketing Director (https://www.instagram.com/uci.uptous/) and was awarded U.S. Top 3 Pledge Earner (https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) and U.S. Top 20 Team (https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04). 
+I was UCI's Marketing Director (https://www.instagram.com/uci.uptous/) and was awarded USA Top 3 Pledge Earner (https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) and USA Top 20 Team (https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04). 
 
 I am quoted in Wake Forest Review (http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/) and Old Gold & Black (https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/). 
 

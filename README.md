@@ -14,6 +14,8 @@ Wake Forest Review http://wakeforestreview.com/up-to-us-campaign-takes-on-nation
 
 Old Gold & Black https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/
 
+# Additional
+
 ![IMG_0554](https://user-images.githubusercontent.com/19508013/111695103-f1e23780-87ef-11eb-89b3-b47df399521b.jpeg) 
 
 ![IMG_1523](https://user-images.githubusercontent.com/19508013/113177014-efc1a500-9201-11eb-8389-9a99f8ecb9e8.jpeg)

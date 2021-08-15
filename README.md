@@ -9,7 +9,7 @@ USA Top 3 Pledge Earner https://www.youracclaim.com/badges/e660888b-82cf-4037-9d
 
 USA Top 20 Team https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04
 
-# Quotes
+# Wake Forest University Quotes
 Wake Forest Review http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/ 
 
 Old Gold & Black https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/

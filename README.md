@@ -5,9 +5,9 @@ Associated with Paul Merage School of Business and Alpha Kappa Psi at the Univer
 I was UCI's Marketing Director (https://www.instagram.com/uci.uptous/) as a sophomore.
 
 # National Awards
-USA Top 3 Pledge Earner https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec 
+U.S. Top 3 Pledge Earner https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec 
 
-USA Top 20 Team https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04
+U.S. Top 20 Team https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04
 
 # Wake Forest University Quotes
 Wake Forest Review http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/ 

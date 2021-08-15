@@ -7,12 +7,12 @@ I was UCI's Marketing Director (https://www.instagram.com/uci.uptous/) as a soph
 # National Awards
 USA Top 3 Pledge Earner https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec 
 
-USA Top 20 Team (https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
+USA Top 20 Team https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04
 
 # Quotes
 Wake Forest Review http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/ 
 
-Old Gold & Black (https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/
+Old Gold & Black https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/
 
 ![IMG_0554](https://user-images.githubusercontent.com/19508013/111695103-f1e23780-87ef-11eb-89b3-b47df399521b.jpeg) 
 

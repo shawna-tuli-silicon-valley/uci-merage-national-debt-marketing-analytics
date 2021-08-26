@@ -2,7 +2,7 @@
 
 Associated with Paul Merage School of Business and Alpha Kappa Psi at the University of California, Irvine. 
 
-I was UCI's Marketing Director (https://www.instagram.com/uci.uptous/) as a sophomore.
+I co-founded UptoUCI and was UCI's Marketing Director (https://www.instagram.com/uci.uptous/) as a sophomore.
 
 # National Awards
 U.S. Top 3 Pledge Earner https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec 

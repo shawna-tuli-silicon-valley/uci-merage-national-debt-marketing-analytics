@@ -26,4 +26,4 @@ Old Gold & Black https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness
 
 ![IMG_0553](https://user-images.githubusercontent.com/19508013/113586042-df367380-95e1-11eb-848d-afa283252724.jpeg)
 
-![IMG_3110](https://user-images.githubusercontent.com/19508013/131007978-1fae5281-624e-4abf-bd5b-4456faef51c5.jpeg)
+![IMG_3110](https://user-images.githubusercontent.com/19508013/131008292-c7addadc-b7e0-4e91-91e6-e9d41e9b7311.jpeg)

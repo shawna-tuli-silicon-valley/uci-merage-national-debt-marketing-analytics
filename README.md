@@ -1,4 +1,4 @@
-# United States National Debt Analysis 🇺🇸❣️
+# United States National Debt Analytics 🇺🇸❣️
 
 Associated with Paul Merage School of Business and Alpha Kappa Psi at the University of California, Irvine. 
 

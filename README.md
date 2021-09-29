@@ -5,14 +5,14 @@ Associated with Paul Merage School of Business and Alpha Kappa Psi at the Univer
 I co-founded UptoUCI (https://www.instagram.com/uci.uptous/) and was UCI's Marketing Director as a sophomore.
 
 # National Awards
-∙ U.S. Top 3 Pledge Earner https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec 
+∙ https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec 
 
-∙ U.S. Top 20 Team https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04
+∙ https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04
 
 # Quotes in Wake Forest University's News
-∙ Wake Forest Review http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/ 
+∙ http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/ 
 
-∙ Old Gold & Black https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/
+∙ https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/
 
 # Additional
 

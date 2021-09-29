@@ -1,6 +1,6 @@
 # United States National Debt Analytics 🇺🇸❣️
 
-Associated with Paul Merage School of Business and Alpha Kappa Psi at the University of California, Irvine. 
+Associated with Center for Investment and Wealth Management, Paul Merage School of Business, and Alpha Kappa Psi Business Fraternity at the University of California, Irvine. 
 
 I co-founded UptoUCI (https://www.instagram.com/uci.uptous/) and was UCI's Marketing Director as a sophomore.
 

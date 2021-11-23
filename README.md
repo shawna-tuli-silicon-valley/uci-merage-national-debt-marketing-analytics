@@ -2,7 +2,7 @@
 
 Associated with UCI Center for Investment and Wealth Management (CIWM), Paul Merage School of Business, and Alpha Kappa Psi Business Fraternity at the University of California, Irvine. 
 
-I co-founded UptoUCI (https://www.instagram.com/uci.uptous/) and was UCI's Marketing Director as a sophomore.
+I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Marketing Director as a sophomore.
 
 # National Awards
 ∙ [Shawna Tuli U.S. Top Pledge Earner Award](https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) 

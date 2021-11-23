@@ -10,7 +10,7 @@ I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Mark
 ∙ [Shawna Tuli 2018 U.S. Top 20 Team Award](https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
 
 # Quotes in Wake Forest University's News
-∙ [Shawna Tuli “Up to Us” Movement Raises Awareness about National Debt Wake Forest Review Quote](http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/) 
+∙ [Shawna Tuli "“Up to Us” Movement Raises Awareness about National Debt" Wake Forest Review Quote](http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/) 
 
 ∙ [Shawna Tuli "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
 

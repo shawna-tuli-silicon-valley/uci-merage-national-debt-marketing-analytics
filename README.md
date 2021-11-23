@@ -5,9 +5,9 @@ Associated with UCI Center for Investment and Wealth Management (CIWM), Paul Mer
 I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Marketing Director as a sophomore.
 
 # National Awards
-∙ [Shawna Tuli U.S. Top Pledge Earner Award](https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) 
+∙ [Shawna Tuli U.S. Top Pledge Earner 2018 Award](https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) 
 
-∙ [Shawna Tuli U.S. Top 20 Team Award](https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
+∙ [Shawna Tuli U.S. Top 20 Team 2018 Award](https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
 
 # Quotes in Wake Forest University's News
 ∙ [Shawna Tuli Wake Forest Review Quote](http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/) 

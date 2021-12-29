@@ -12,7 +12,7 @@ I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Mark
 # Quote
 ∙ [Shawna Tuli "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
 
-# Social Media Marketing
+# Social Media
 
 ![IMG_1523](https://user-images.githubusercontent.com/19508013/113177014-efc1a500-9201-11eb-8389-9a99f8ecb9e8.jpeg)
 

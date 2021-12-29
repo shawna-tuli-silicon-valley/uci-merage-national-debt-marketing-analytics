@@ -12,8 +12,6 @@ I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Mark
 # Quotes in Wake Forest University's News
 ∙ [Shawna Tuli "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
 
-∙ [Shawna Tuli "“Up to Us” Movement Raises Awareness about National Debt" Wake Forest Review Quote](http://wakeforestreview.com/up-to-us-campaign-takes-on-national-debt/) 
-
 # Social Media Marketing
 
 ![IMG_1523](https://user-images.githubusercontent.com/19508013/113177014-efc1a500-9201-11eb-8389-9a99f8ecb9e8.jpeg)

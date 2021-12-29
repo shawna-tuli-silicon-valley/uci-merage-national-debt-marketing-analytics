@@ -1,4 +1,4 @@
-# United States National Debt Analytics ❣🇺🇸
+# United States National Debt Marketing Analytics ❣🇺🇸
 
 Associated with UCI Center for Investment and Wealth Management (CIWM), Paul Merage School of Business, and Alpha Kappa Psi Professional Business Fraternity at the University of California, Irvine. 
 

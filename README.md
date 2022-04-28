@@ -1,4 +1,6 @@
 ![CIWM](https://user-images.githubusercontent.com/19508013/165816069-482e371c-62f4-40d1-84bd-e127d8effee2.jpeg) 
+![Merage](https://user-images.githubusercontent.com/19508013/165828651-fb0eb979-2623-4c65-a7d0-59dd0783c1ab.png)
+![AlphaKappaPsi_Horizontal-Website](https://user-images.githubusercontent.com/19508013/165828670-e7e49f36-39ad-4b5a-a1d0-0f1b9b409618.png)
 
 Associated with UCI Center for Investment and Wealth Management (CIWM), Paul Merage School of Business, and Alpha Kappa Psi Professional Business Fraternity at the University of California, Irvine. 
 

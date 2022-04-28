@@ -1,4 +1,4 @@
-# United States National Debt Marketing Analytics ❣🇺🇸
+![Merage](https://user-images.githubusercontent.com/19508013/165651390-a91187b3-a8a4-433d-a975-ed807a330b01.png)
 
 Associated with UCI Center for Investment and Wealth Management (CIWM), Paul Merage School of Business, and Alpha Kappa Psi Professional Business Fraternity at the University of California, Irvine. 
 

@@ -1,7 +1,5 @@
 ![CIWM](https://user-images.githubusercontent.com/19508013/165816069-482e371c-62f4-40d1-84bd-e127d8effee2.jpeg) 
 
-![Merage](https://user-images.githubusercontent.com/19508013/165651390-a91187b3-a8a4-433d-a975-ed807a330b01.png)
-
 Associated with UCI Center for Investment and Wealth Management (CIWM), Paul Merage School of Business, and Alpha Kappa Psi Professional Business Fraternity at the University of California, Irvine. 
 
 I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Marketing Director as a sophomore. I influenced young Americans to become aware of and take action to reduce the U.S. Debt.

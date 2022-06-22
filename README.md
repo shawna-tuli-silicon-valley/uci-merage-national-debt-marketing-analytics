@@ -17,7 +17,7 @@ I co-founded [UptoUCI](https://www.instagram.com/uci.uptous/) and was UCI's Mark
 # Social Media
 ∙ [@uci_uptous](https://twitter.com/uci_uptous)
 
-∙ [uci.uptous](https://www.instagram.com/uci.uptous/)
+∙ [@uci.uptous](https://www.instagram.com/uci.uptous/)
 
 ∙ [@uci_uptous](https://www.facebook.com/uci.uptous)
 

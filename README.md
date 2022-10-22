@@ -9,7 +9,7 @@
 ∙ [Shawna Tuli 2018 U.S. Top 20 Team Award](https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
 
 # Quote
-∙ [Shawna Tuli "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
+∙ [Shawna Tuli 2018 "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
 
 # Social Media
 ∙ [@uci_uptous](https://twitter.com/uci_uptous)

@@ -12,11 +12,11 @@
 ∙ [Shawna Tuli 2018 "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
 
 # Social Media
-∙ [@uci_uptous](https://twitter.com/uci_uptous)
+∙ Twitter [@uci_uptous](https://twitter.com/uci_uptous)
 
-∙ [@uci.uptous](https://www.instagram.com/uci.uptous/)
+∙ Instagram [@uci.uptous](https://www.instagram.com/uci.uptous/)
 
-∙ [@uci_uptous](https://www.facebook.com/uci.uptous)
+∙ Facebook [@uci_uptous](https://www.facebook.com/uci.uptous)
 
 ![IMG_1523](https://user-images.githubusercontent.com/19508013/113177014-efc1a500-9201-11eb-8389-9a99f8ecb9e8.jpeg)
 

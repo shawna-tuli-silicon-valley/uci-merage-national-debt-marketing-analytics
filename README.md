@@ -3,10 +3,10 @@
 ![Merage](https://user-images.githubusercontent.com/19508013/165828651-fb0eb979-2623-4c65-a7d0-59dd0783c1ab.png)
 ![AlphaKappaPsi_Horizontal-Website](https://user-images.githubusercontent.com/19508013/165828670-e7e49f36-39ad-4b5a-a1d0-0f1b9b409618.png)
 
-# National Awards
-∙ [Shawna Tuli 2018 U.S. Top Pledge Earner Award](https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) 
+# National Honor Badges
+∙ [Shawna Tuli 2018 U.S. Top Pledge Earner Honor Badge](https://www.youracclaim.com/badges/e660888b-82cf-4037-9d9d-c98c06cacdec) 
 
-∙ [Shawna Tuli 2018 U.S. Top 20 Team Award](https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
+∙ [Shawna Tuli 2018 U.S. Top 20 Team Honor Badge](https://www.youracclaim.com/badges/394c1643-1353-4cae-be98-bcb3cf066f04)
 
 # Quote
 ∙ [Shawna Tuli 2018 "“Up to Us” Movement Raises Awareness about National Debt" Old Gold & Black Quote](https://wfuogb.com/5022/news/up-to-us-movement-raises-awareness-about-national-debt/)
